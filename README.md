@@ -1,1 +1,1 @@
-:wave: :grin: :wave:
+:thumbs_up: :grin: :thumbs_up:
